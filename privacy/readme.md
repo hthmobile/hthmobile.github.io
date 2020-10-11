@@ -24,7 +24,7 @@ We love hearing your voice. Let's contact us and stay connected!
 
 Get in touch with me for support via: [Messenger](https://m.me/416305462459391)
 
-Email: appfeedback118@yandex.com
+Email: hthmobilesoft@gmail.com
 
 Address: 3 Lane 68 Cau Giay Street, Quan Hoa Ward, Cau Giay District, Hanoi.
 
